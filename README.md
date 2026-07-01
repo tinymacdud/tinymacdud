@@ -26,10 +26,15 @@
 @ take me to heaven !!
 
 * social links!! : https://www.patreon.com/RRsRno2I_H/ https://www.tiktok.com/users/@lentidentuhhh https://www.roblox.com/users/10923306791/profile !!
-
+<div align="center">
+  <h3> . 🍫 .  DNI LIST :: </h3>
+</div>
+  *  proshippers / drkshippers,
+  *  forsaken fans
+  *  tcoal fans.
   THE END!!(,editing soon ^_^)
 <div align="center">
-  <img src="https://media1.tenor.com/m/qxRW6zReNT4AAAAd/animal-hospital-anomaly-roblox.gif" width="100">
+  <img src="https://media1.tenor.com/m/qxRW6zReNT4AAAAd/animal-hospital-anomaly-roblox.gif" width="600">
 </div>
 
 
