@@ -30,9 +30,15 @@
   <h3> . 🍫 .  DNI LIST :: </h3>
 </div>
   *  proshippers / drkshippers,
+
+  
   *  forsaken fans
+    
+
   *  tcoal fans.
-  THE END!!(,editing soon ^_^)
+
+ 
+  THE END!!
 <div align="center">
   <img src="https://media1.tenor.com/m/qxRW6zReNT4AAAAd/animal-hospital-anomaly-roblox.gif" width="600">
 </div>
