@@ -40,7 +40,7 @@
  
   THE END!!
 <div align="center">
-  <img src="https://media1.tenor.com/m/qxRW6zReNT4AAAAd/animal-hospital-anomaly-roblox.gif" width="600">
+  <img src="https://ih1.redbubble.net/image.2696929597.0672/flat,750x,075,f-pad,750x1000,f8f8f8.jpg" width="600">
 </div>
 
 
