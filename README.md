@@ -33,7 +33,16 @@
   *  proshippers / drkshippers,
 
   
-  *  (forsaken fans removed from tis list)
+  *  homophobic.
+
+
+  * transphobic.
+
+
+  * racism.
+
+
+  * people who find r[]pe jokes funny.
     
 
   *  tcoal fans.
