@@ -6,7 +6,7 @@
 
 
 , ╰ ʙᴏᴜɴᴅᴀʀɪᴇs ↓
-<div align="center">
+<div align="left">
   <img src="https://github.com/tinymacdud/tinymacdud/blob/main/Untitled52_20260713160745.png" width="700">
 </div>
 
