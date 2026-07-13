@@ -1,7 +1,7 @@
 ⃝be my puppet. 
-## 🧊 welcome 𓆪
+# 🧊 welcome 𓆪
 
-# 𝗵𝗲𝗹𝗹𝗼. 𝗰𝗮𝗹𝗹 𝗺𝗲 𝘀𝘄𝗼𝗿𝗱 𝗢𝗿 𝘃𝗮𝗻. 
+##### 𝗵𝗲𝗹𝗹𝗼. 𝗰𝗮𝗹𝗹 𝗺𝗲 𝘀𝘄𝗼𝗿𝗱 𝗢𝗿 𝘃𝗮𝗻. 
   <div align="center">
   <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR3qp7xWLa7DHByeJyY4KJ26GMoxVYP-U3WJys5F4akGBdlgLrs-zEsvBA&s=10" width="400">
 </div>
