@@ -8,7 +8,9 @@
   <div align="center">
   <img src="https://64.media.tumblr.com/95bed4d786cc627bda27db13f7cb2e69/7ede6740bdee8203-1d/s2048x3072/7097bd45c7b6582c998bdf1266800a65297ec49a.pnj" width="𝟲𝟬𝟬">
 </div>
-(↑credits to frillute) 
+(↑credits to frilliette) 
+
+
 , ✦⃞⃞𝗯𝗼𝘂𝗻𝗱𝗮𝗿𝗶𝗲𝘀! 
 <div align="center">
   <img src="https://github.com/tinymacdud/tinymacdud/blob/main/Untitled52_20260713162121.png" width="700">
