@@ -23,5 +23,5 @@
 
 
 <div align="center">
-<"https://bananabreadyum.straw.page">
+https://bananabreadyum.straw.page
 
