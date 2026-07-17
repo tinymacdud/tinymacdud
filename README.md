@@ -33,6 +33,6 @@
 ME LELELELELEE   , !!! 
 
 <div align="center">
-  <img src="https://www.gif-vif.com/trending/jude-bellingham-bellingham-jude.gif" width="500">
+  <img src="https://www.gif-vif.com/trending/jude-bellingham-bellingham-jude.gif" width="200">
 </div>
  
