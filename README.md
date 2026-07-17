@@ -2,7 +2,7 @@
   <img src="https://github.com/tinymacdud/tinymacdud/blob/main/Untitled56_20260717174433.png" width="400">
 </div>
 <div align="center">
-$${\color{#5A82A6}\text{𝗶 𝗿𝗹𝗹𝘆 𝗹𝗶𝗸𝗲 𝘃𝗶𝗻𝗶 𝗡 𝗯𝗲𝗹𝗹𝗶𝗻𝗴𝗵𝗮𝗺!! (𝗛𝗠:𝗵𝗮𝗮𝗹𝗮𝗻𝗱) }}$$
+𝗶 𝗿𝗹𝗹𝘆 𝗹𝗶𝗸𝗲 𝘃𝗶𝗻𝗶 𝗡 𝗯𝗲𝗹𝗹𝗶𝗻𝗴𝗵𝗮𝗺!! (𝗛𝗠:𝗵𝗮𝗮𝗹𝗮𝗻𝗱)
 <div align="center">
 <a href="https://bananabreadyum.straw.page" style="color: #FFDCC4; text-decoration: none;">Ꮺ  s𝗍rᥲᥕ !!!</a>
 
