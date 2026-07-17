@@ -4,7 +4,7 @@
 <div align="center">
 𝗶 𝗿𝗹𝗹𝘆 𝗹𝗶𝗸𝗲 𝘃𝗶𝗻𝗶 𝗡 𝗯𝗲𝗹𝗹𝗶𝗻𝗴𝗵𝗮𝗺!! (𝗛𝗠:𝗵𝗮𝗮𝗹𝗮𝗻𝗱) 
 <div align="center">
-, https://bananabreadyum.straw.page
+  <p>🧬 <a href="https://bananabreadyum.straw.page">sᴛʀᴀᴡ</a></p>
 
 <div align="center">
 𐔌˙.
