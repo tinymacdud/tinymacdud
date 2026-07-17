@@ -30,7 +30,7 @@
 
 
 <div align="center">
-ME LELELELELEE   , !!! 
+  , !!! 
 
 <div align="center">
   <img src="https://www.gif-vif.com/trending/jude-bellingham-bellingham-jude.gif" width="200">
